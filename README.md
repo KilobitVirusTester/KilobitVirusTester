@@ -1,4 +1,2 @@
--  Hi, I’m @KilobitVirusTester
--  i test malwares in my channel : https://www.youtube.com/channel/UCDGuljyEq9zc775OqtGUgRQ
--  i created my github for publics downloads of malwares
--  WARNING!!! : All of this for educational purporses only , i dont want to damage your's pc's , the creator of this malwares are not responsible for any damage to a computer
+test account :)
+suscribe! : https://www.youtube.com/channel/UCDGuljyEq9zc775OqtGUgRQ
